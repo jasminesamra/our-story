@@ -1,2 +1,2 @@
 # our-story
-My friend's and my story!
+My great friend's and my story!
